@@ -1,1 +1,0 @@
-# coursera-ibm-week2-GITHUB-DEMO
